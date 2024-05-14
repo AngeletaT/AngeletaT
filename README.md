@@ -7,7 +7,7 @@
 🎓 𝘉𝘢𝘤𝘩𝘦𝘭𝘰𝘳 𝘰𝘧 𝘈𝘳𝘵𝘴 𝘪𝘯 𝘎𝘢𝘮𝘦 𝘋𝘦𝘴𝘪𝘨𝘯 - 𝘚𝘩𝘦𝘧𝘧𝘪𝘦𝘭𝘥 𝘏𝘢𝘭𝘭𝘢𝘮 𝘜𝘯𝘪𝘷𝘦𝘳𝘴𝘪𝘵𝘺 (𝘚𝘩𝘦𝘧𝘧𝘪𝘦𝘭𝘥, 𝘜𝘒) <br/>
 🎓 𝘏𝘕𝘋 𝘪𝘯 𝘎𝘢𝘮𝘦𝘴 𝘈𝘳𝘵 - 𝘌𝘴𝘤𝘶𝘦𝘭𝘢 𝘚𝘶𝘱𝘦𝘳𝘪𝘰𝘳 𝘥𝘦 𝘈𝘳𝘵𝘦 𝘺 𝘛𝘦𝘤𝘯𝘰𝘭𝘰𝘨𝘪́𝘢 (𝘝𝘢𝘭𝘦𝘯𝘤𝘪𝘢, 𝘌𝘚𝘗) <br/>
 
-🏰 Disney Freak  | 🎮 Videogames Fanatic | ☕️ Coffee Lover | 🛫 Travel Enjoyer
+🏰 𝘋𝘪𝘴𝘯𝘦𝘺 𝘍𝘳𝘦𝘢𝘬  | 🎮 𝘝𝘪𝘥𝘦𝘰𝘨𝘢𝘮𝘦𝘴 𝘍𝘢𝘯𝘢𝘵𝘪𝘤 | ☕️ 𝘊𝘰𝘧𝘧𝘦𝘦 𝘓𝘰𝘷𝘦𝘳 | 🛫 𝘛𝘳𝘢𝘷𝘦𝘭 𝘌𝘯𝘫𝘰𝘺𝘦𝘳
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/angelat_3d/?hl=es) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/angela-torro-ballester/) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/https://twitter.com/AngeletaT) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@https://www.youtube.com/channel/UCGy2ryYUGwfmTVPNtXDj5GA) 
