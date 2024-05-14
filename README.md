@@ -1,8 +1,8 @@
 # 💫 About Me:
 Hello, I'm a young, passionate 3D artist, always looking for improvement and new challenges. Currently, I am studying Web Development and searching for a job to continue learning and growing professionally. I am eager to apply my skills and contribute to innovative projects.
 
-📚 Web Development - IES L'Estació (Ontinyent, ESP)
-🎓 Bachelor of Arts in Game Design - Sheffield Hallam University (Sheffield, UK)
+📚 Web Development - IES L'Estació (Ontinyent, ESP) <br/>
+🎓 Bachelor of Arts in Game Design - Sheffield Hallam University (Sheffield, UK) <br/>
 🎓 HND in Games Art - Escuela Superior de Arte y Tecnología (Valencia, ESP)
 
 ## 🌐 Socials:
